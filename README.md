@@ -1,2 +1,2 @@
-# Topicos-Contemporaneos
+
 Tópicos Contemporâneos
